@@ -10,4 +10,4 @@
 
 本站专注于收录日韩与男同等多样题材的视频内容，涵盖剧情、偷拍、高清等多类风格。平台播放流畅、画质高清、无广告干扰，支持多终端访问，为您带来纯净便捷的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh12 ）</span>
